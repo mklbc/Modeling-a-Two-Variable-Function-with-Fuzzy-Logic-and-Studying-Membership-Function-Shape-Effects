@@ -1,1 +1,1 @@
-# Modeling-a-Two-Variable-Function-with-Fuzzy-Logic-and-Studying-Membership-Function-Shape-Effects
+# Modeling-a-Two-Variable-Function-with-Fuzzy-Logic-and-Studying-Membership-Function-Shape-Effects[Modeling a Two-Variable Function with Fuzzy Logic and Studying Membership Function Shape Effects (2).pdf](https://github.com/user-attachments/files/19738419/Modeling.a.Two-Variable.Function.with.Fuzzy.Logic.and.Studying.Membership.Function.Shape.Effects.2.pdf)
